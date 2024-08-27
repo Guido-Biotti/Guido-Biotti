@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **biottiguido@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/19ePnHxMO9CLXU-X4d46USbQF3FoSRkUguFW0D5L--Fk/edit?usp=sharing](https://docs.google.com/document/d/19ePnHxMO9CLXU-X4d46USbQF3FoSRkUguFW0D5L--Fk/edit?usp=sharing)
+- 📄 Know about my experiences [checkout my CV](https://docs.google.com/document/d/1FlsXqF4YxF_OUej_MAMifYQUIugT56h3SMwjuccRHOk/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
